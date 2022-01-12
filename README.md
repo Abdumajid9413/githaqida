@@ -1,0 +1,2 @@
+# githaqida
+oquv markaz
